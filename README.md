@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **konglm41@gmail.com**
 
-- ⚡ Fun fact **Wanna be little Fullsnack Developer 🤣**
+- ⚡ Fun fact **Wanna be a Fullsnack Developer 🍪**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
